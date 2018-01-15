@@ -12,4 +12,9 @@ CAll ME MAYBE 89104230026
 
 ## [READ SOME STUFF](https://twitter.com/ourprivatetraps)
 
-LOVE CATS, COFFEE AND 
+#LOVE CATS, COFFEE AND BADTRIPS
+
+## TOTEMIC ANIMAL 
+![alt-TOTEMIC ANIMAL](https://pp.userapi.com/c834303/v834303642/8a38f/vYnmZsvjVMc.jpg)
+
+
