@@ -17,4 +17,10 @@ CAll ME MAYBE 89104230026
 ## TOTEMIC ANIMAL 
 ![alt-TOTEMIC ANIMAL](https://pp.userapi.com/c834303/v834303642/8a38f/vYnmZsvjVMc.jpg)
 
+__Favourite movies__: Pulp Fiction, Gangs of New York, Psycho, The Wolf of Wall Street, Only Lovers Left Alive, Café Society and Midnight in Paris.
+
+__Music for the soul__: Hurts, Two Doors Cinema Club, alt-J, Artic Monkeys, Bastille, Coldplay, White Lies, The Neighbourhood and Twenty One Pilots.
+
+__Music for fun__: Little Big, Pharaoh, Kendrick Lamar, G-Eazy, Stormzy, LSP, Thomaz Mraz.
+
 
