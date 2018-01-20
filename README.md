@@ -12,7 +12,7 @@ CAll ME MAYBE 89104230026
 
 ## [READ SOME STUFF](https://twitter.com/ourprivatetraps)
 
-# LOVE CATS, COFFEE AND BADTRIPS
+# LOVE CATS, COFFEE AND ~~BADTRIPS~~ WALKS
 
 ## TOTEMIC ANIMAL 
 ![alt-TOTEMIC ANIMAL](https://pp.userapi.com/c834303/v834303642/8a38f/vYnmZsvjVMc.jpg)
@@ -22,5 +22,10 @@ __Favourite movies__: Pulp Fiction, Gangs of New York, Psycho, The Wolf of Wall 
 __Music for the soul__: Hurts, Two Doors Cinema Club, alt-J, Artic Monkeys, Bastille, Coldplay, White Lies, The Neighbourhood and Twenty One Pilots.
 
 __Music for fun__: Little Big, Pharaoh, Kendrick Lamar, G-Eazy, Stormzy, LSP, Thomaz Mraz.
+
+__Favourite  Books__ : 1984, On the Road, Cat's Cradle, To Kill a Mockingbird,The Master and Margarita, A Graveyard for Lunatics, The Martian Chronicles, Slaughterhouse-Five, or The Children’s Crusade and One Flew Over The Cuckoo's Nest. 
+![](https://pp.userapi.com/c840729/v840729355/46558/kyPNUBIUvQI.jpg)
+
+
 
 
